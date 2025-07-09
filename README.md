@@ -1,2 +1,2 @@
 # PROYECTO_1
-## Judith Quiñones Inga
+## Judith Quiñones Inga.
